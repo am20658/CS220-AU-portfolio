@@ -10,11 +10,9 @@ I am a student in the Sociology department at University of Essex. My course (Co
 
 <br>
 
-## social media links
-- [LinkedIn](https://www.linkedin.com/in/tedor)
-- [YouTube](https://www.youtube.com/c/Hofst%C3%A4dterKriszti%C3%A1n_tEd%C3%B6r/videos)
+## Introduction
+I wish this project had nothing to do with politics, however unfortunately, it does. Women's rights have not been respected by the society in the past, mostly due to division in power between genders that has been created under various, ever-changing circumstances. Throughout the years, the value of women and their rights have been constantly diminished and regarded as lesser than men. It went on for so long, that it seemed like only law could impose new ways of treating women, based on respect and having their safety and comfort as a priority. This is a fairly new change in laws all over the world and that is why in some countries it is still not fully imposed. In the case of Poland, the recent history of women's rights has been quite chaotic. Untill the biggest right-wing political party has won its first election back in 2015, women have been gaining more and more freedom. Unfortunately, the conservative party, which has been rulling in Poland since 2015, has 
 
-Note: only link social media that you are happy for people to visit i.e. if your website gives information about a professional service, you should not link it to your social media account which is primarily for your personal use.
 
 <br>
 

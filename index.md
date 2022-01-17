@@ -1,7 +1,7 @@
 The information below can be used as a template for your own home page. 
 
 ## Aleksandra Maciocha
-**University student pursuing a degree in Communications and Digital Culture**  
+**Attacks on Women's Rights in Poland: 2020-2022**  
 
 Hello! My name is Aleksandra Maciocha, Alex for short. 
 

@@ -3,7 +3,7 @@ The information below can be used as a template for your own home page.
 ## Aleksandra Maciocha
 **Attacks on Women's Rights in Poland: 2020-2022**  
 
-Hello! My name is Aleksandra Maciocha, Alex for short. 
+Hello! My name is Aleksandra Maciocha, Alex for short. This page is dedicated to spread awareness on the women's rights movement in Poland, which has been actively protesting heavier law restrictions considering abortion. On this website I will present a timeline of the more recent protests, when the tension between the people and the government has greatly intensified.
 
 I am a student in the Sociology department at University of Essex. || I am a creative technologist working as a researcher, lecturer, freelancer and artist. Besides working on the Enhancing Audio Description project as a research assistant, my doctoral research developed brain-computer music interfaces for meditation, in which I link neurofeedback to auditory entrainment in generative soundscapes inspired by shamanic journeying. I have also been teaching music technology-related subjects (e.g. sonic art, sensor technology and music for the moving image) as an associate lecturer at the Anglia Ruskin University, Cambridge and the University of Bedfordshire and currently teach a module on sensemaking and digital identities at the School of Philosophy and Arts History at the University of Essex. As a freelancer and artist, I have been producing sound design and music, websites and visual art, including photography and paintings. 
 

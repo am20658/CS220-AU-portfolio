@@ -7,7 +7,6 @@ Hello! My name is Aleksandra Maciocha, Alex for short. This page is dedicated to
 
 I am a student in the Sociology department at University of Essex. My course (Communications and Digital Culture) focuses mainly on how digital media shape and affect our society. This is my second year of studying on this course, and throughout this time I have found a great interest in the women's and LGBTQ+A rights movements all over the world. Since my nationality is Polish, this case especially is a very personal hit. I try to spread awareness on Polish women's everyday struggles every chance I get.    
 
-Note: I wrote this short bio to go with a recent journal publication where I was co-editor. On my personal website this bio is much shorter. Writing this bio (or abstract) is not easy, most people rewrite it very often before they consider it final for a specific purpose. So should you. Experiment and ask for feedback. 
 
 <br>
 

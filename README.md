@@ -49,20 +49,30 @@ How to use this GitHub repository as a template for your submission, including h
 <br>
 
 ## Log
+
 13.01.2022 - redone the V&R map of my current and future digital identity
+
 14.01.2022 - planned out and started the DI essay
+
 16.01.2022 - Finished writing the DI essay
+
 16.01.2022 - started working on the website
+
 17.01.2022 - wrote the introduction for the website and organized a timeline for the evnts included in the project for it
+
 18.01.2022 - completed writing the website
+
 18.01.2022 - completed enhancing the visual aspect of the website
 
 <br>
 
 ## TODO
+
 Find pictures/videos to enhance the page's visuals (done)
+
 Ask friends to provide pictures (done)
-paste the V&R maps into the DI essay
+
+Paste the V&R maps into the DI essay
 
 <br>
 

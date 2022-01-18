@@ -60,9 +60,6 @@ How to use this GitHub repository as a template for your submission, including h
 
 17.01.2022 - wrote the introduction for the website and organized a timeline for the evnts included in the project for it
 
-18.01.2022 - completed writing the website
-
-18.01.2022 - completed enhancing the visual aspect of the website
 
 <br>
 
@@ -72,7 +69,6 @@ Find pictures/videos to enhance the page's visuals (done)
 
 Ask friends to provide pictures (done)
 
-Paste the V&R maps into the DI essay
 
 <br>
 

@@ -11,14 +11,14 @@ I am a student in the Sociology department at University of Essex. My course (Co
 <br>
 
 ## Introduction
-I wish this project had nothing to do with politics, however unfortunately, it does. Women's rights have not been respected by the society in the past, mostly due to division in power between genders that has been created under various, ever-changing circumstances. Throughout the years, the value of women and their rights have been constantly diminished and regarded as lesser than men's. It went on for so long, that it seemed like only law could impose new ways of treating women, based on respect and having their safety and comfort as a priority. Shockingly, this is a fairly new change in laws all over the world and that is why in some countries it is still not fully imposed. In the case of Poland, the recent history of women's rights has been quite chaotic. Untill the biggest right-wing political party has won its first election back in 2015, women have been gaining more and more freedom. Unfortunately, the conservative party, which has been consistently rulling in Poland since 2015, has been actively trying to limit women's rights and have used the need of preservation of religious values as an excuse for doing so. 
+I wish this project had nothing to do with politics, however unfortunately, it does. Women's rights have not been respected by the society in the past, mostly due to the division in power between genders that has been shaped under various, ever-changing circumstances. Throughout the years, the value of women and their rights have been constantly diminished and regarded as lesser than men's. It went on for so long, that it seemed like only law could impose new ways of treating women, based on respect and having their safety and comfort as a priority. Shockingly, this is a fairly new change in laws all over the world and that is why in some countries it is still not fully imposed. In the case of Poland, the recent history of women's rights has been quite chaotic. Untill the biggest right-wing political party has won its first election back in 2015, women have been gaining more and more freedom. Unfortunately, the conservative party, which has been consistently rulling in Poland since 2015, has been actively trying to limit women's rights and have used the need of preservation of religious values as an excuse for doing so. 
 
 
 <br>
 
-## contact
-- k[dot]hofstadter[at]essex[dot]co[dot]uk
-- kris[at]khofstadter[dot]com
+## October 22nd, 2020 - January 27th 2021
+
+Poland's Constitutional Tribunal, which is widely considered as politically compromised has ruled that abortion on grounds of “severe and irreversible fetal defect or incurable illness that threatens the fetus’ life” is unconstitutional. That rulling came into force on January 27th and was met with dissatisfaction and frustration of the Polish people and became the beginning of many more strikes across Poland. People would gather on themain streets of their cities and march while chanting slogans promoting the freedom of choice.
 
 <br>
 

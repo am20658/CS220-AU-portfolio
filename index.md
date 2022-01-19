@@ -18,7 +18,7 @@ I wish this project had nothing to do with politics, however unfortunately, it d
 
 ## October 22nd, 2020 - January 27th 2021
 
-Poland's Constitutional Tribunal, which is widely considered as politically compromised has ruled that abortion on grounds of “severe and irreversible fetal defect or incurable illness that threatens the fetus’ life” is unconstitutional. That rulling came into force on January 27th and was met with dissatisfaction and frustration of the Polish people and became the beginning of many more strikes across Poland. People would gather on themain streets of their cities and march while chanting slogans promoting the freedom of choice.
+Poland's Constitutional Tribunal, which is widely considered as politically compromised has ruled that abortion on grounds of “severe and irreversible fetal defect or incurable illness that threatens the fetus’ life” is unconstitutional. That rulling came into force on January 27th and was met with dissatisfaction and frustration of the Polish people and became the beginning of many more strikes across Poland. People would gather on the main streets of their cities and march while chanting slogans promoting the freedom of choice.
 
 <br>
 
